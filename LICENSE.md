@@ -1,4 +1,4 @@
-
+Principal DayZ truco apuntado es el mejor DayZ truco apuntado con modo dios y apuntado automático. Seguro, confiable y optimizado para el máximo rendimiento.
 
 
 
